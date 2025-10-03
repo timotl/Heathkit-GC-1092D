@@ -1,0 +1,1 @@
+# Heathkit-GC-1092D
